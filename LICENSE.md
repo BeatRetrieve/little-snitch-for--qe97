@@ -1,4 +1,4 @@
-
+Get the ultimate Little Snitch for macOS integration with advanced Little Snitch for macOS Integration | VPN-integration + two-factor-authentication. Featuring VPN-integration and
 
 
 
